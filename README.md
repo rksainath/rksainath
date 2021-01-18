@@ -9,5 +9,5 @@
 - 🧐  Entrepreneurial mindset and Innovation-driven
 - 🧗🏻  Eager to work with startups
 - ✍🏻  Writes in [DEV](https://dev.to/sainathr) and has a [Website](https://www.sainathramanathan.xyz/)
-- 🗣  Social Media: [LinkedIn](https://www.linkedin.com/in/sainath-ramanathan/) | [Twitter](https://twitter.com/rksainath)
+- 🗣  Social Media: [LinkedIn](https://www.linkedin.com/in/sainath-ramanathan/)
 - 📧  [Contact](https://www.sainathramanathan.xyz/contact/)
