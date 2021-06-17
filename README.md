@@ -8,6 +8,6 @@
 - 👨🏻‍🏫  Loves to teach, blog, engage in tech events and evangelize Open Source
 - 🧐  Entrepreneurial mindset and Innovation-driven
 - 🧗🏻  Eager to work with startups
-- ✍🏻  Writes in [DEV](https://dev.to/sainathr) and has a [Website](https://sainathr.com)
+- ✍🏻  Has a [Website](https://sainathr.com)
 - 🗣  [Connect With Me](https://linktr.ee/sainathr)
 
